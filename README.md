@@ -1,0 +1,5 @@
+- 👋🏻 Hi, I’m @andremartinns
+- 👀 I’m interested in work with dev </> 🤟🏻
+- 📚 I’m currently learning full-stack developer 
+- I♥️Trips 🌎
+- Locate me at <a>https://www.linkedin.com/in/andr%C3%A9-luiz-992936201/</a>/<a>andremartinns75@gmail.com</a>
